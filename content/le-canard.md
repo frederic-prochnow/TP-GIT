@@ -19,3 +19,4 @@ FIN.
 Une histoire mange
 FIN.
 PROUT!
+HAHAHAHAHAHA!
